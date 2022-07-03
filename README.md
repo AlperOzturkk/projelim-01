@@ -1,0 +1,12 @@
+# proje1
+# proje1
+# proje01
+# -al-malar-m1
+# Projelerim-01
+# Projelerim-01
+# Projelerim-01
+# Projelerim-01
+# Projelerim-01
+# Projelerim-01
+# Projelerim-01
+# projelim-01
